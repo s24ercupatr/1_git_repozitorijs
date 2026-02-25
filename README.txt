@@ -1,0 +1,1 @@
+s24ercupatr - 1. git repozitorijs
